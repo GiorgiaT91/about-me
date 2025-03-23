@@ -1,4 +1,4 @@
-# Welcome to my profile! 🌟
+# Welcome to my profile!
 
 Hello! I'm a Marketing professional passionate about MarTech, AI, and Cloud integrations. 🚀 Here you'll find information about my professional experience, interests, and much more.
 
